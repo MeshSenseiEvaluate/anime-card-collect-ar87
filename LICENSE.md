@@ -1,4 +1,4 @@
-# 
+# anime card collection Scripts new offers the most advanced anime card collection Script, with aimbot and teleport. Perfect for dominating any match.
 
 
 
